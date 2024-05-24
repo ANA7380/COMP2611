@@ -1,1 +1,1 @@
-Please download the PDF Version!
+Please download the PDF!
